@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://cg55-6.pages.dev/">新91黑料专区网</a>
+点击访问：<a href="https://pi100.pages.dev/">15吃瓜今日黑料</a>
 
 点击访问：<a href="https://cg765.pages.dev/">吃瓜爆料网</a>
 

@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://pi100.pages.dev/">15吃瓜今日黑料</a>
 
-点击访问：<a href="https://cg765.pages.dev/">吃瓜爆料网</a>
+点击访问：<a href="https://hi10-1.pages.dev/">17吃瓜今日黑料</a>
 
 点击访问：<a href="https://hj-1301.pages.dev/">51视频</a>
 
